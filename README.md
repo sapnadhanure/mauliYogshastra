@@ -1,1 +1,1 @@
-# mauliYogshastra
+# mauliYogshastra College
